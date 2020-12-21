@@ -1,0 +1,2 @@
+Pinned over 3 million times, these super soft and chewy chocolate chip cookies are the most popular cookie recipe on my website. Melted butter, more brown sugar than white sugar, and an extra egg yolk guarantee the chewiest chocolate chip cookie texture. Big chocolate chunks promise chocolate in every single bite. The flavor and texture of these cookies is unparalleled by any other recipe. No mixer required! 
+
